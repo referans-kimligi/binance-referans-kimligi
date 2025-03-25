@@ -12,4 +12,3 @@ Binance'e katılmayı düşünüyorsanız, "HP04AB2P" referans kimliğini kullan
 ### Kaynakça:
 1. https://www.amazon.com/Binance-Referans-Kimli%C4%9Fi-Nedir/dp/B0F1LWV32V
 2. https://www.amazon.com/binance-referans-kimligi-nedir/dp/B0F1LQMB5V
-3. 
